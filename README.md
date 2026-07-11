@@ -1,1 +1,1 @@
-# https-erevenue.dncc.gov.bd-Tradelicense-rpt_TradeLicense_tinyurl_print.aspx-id-b58183c0-d20d-4eb1-88
+# https-erevenue.dncc.gov.bd-Tradelicense-rpt_TradeLicense_tinyurl_print.aspx-id-b58183c0-d20d-4eb1-888d-d3b30d2973a6&printtype=dwaRpcdzXN8ksZBGu3vFcQ%3D%3D&transactionno=bHPLkcnDwXIuis1OLV8GE05GtZJtquneI9qdnbezmCA%3D
